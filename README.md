@@ -2,8 +2,7 @@
 - 👀 I’m interested in leraning cod ...
 - 🌱 I’m currently learning {adb and AND OTHER SHIT} ...
 - 💞️ I’m looking to collaborate on GAMING AND COD  and need a starting point ...
-- 📫 How to reach me ... jermoneystacks@gmail.com
-or here this me I made a master this portion of my code nobody can redistribute or distribute without my permission I will post my other licenses later after I finish with everything           
+- 📫 jermoneystacks@gmail.com I made a master this portion of my code nobody can redistribute or distribute without my permission I will post my other licenses later after I finish with everything           
 <!---mystar of....jjjjhdon..it//738..{<J$ hdon..it//738..{<J$: &fam//£¥®§>}s..ti sce I hdon..it//738..{<J$: &fam@Meta AI /imagine /£¥®§>}
 {Nuk//. Family..e÷¢√~\`=©£π}aitf/Null//.b.d.86/05.02//   b//l..000.00.00.01/09/
 jermoneystacks738/jermoneystacks738 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
